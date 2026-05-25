@@ -30,5 +30,5 @@ Completed ✔️
 
 🔗 Connect With Me
 
-LinkedIn: vishnuprasad3004
-GitHub: (Add your https://www.linkedin.com/in/j-vishnu-prasad-518b69292/
+LinkedIn: https://github.com/vishnuprasad3004
+GitHub:  https://www.linkedin.com/in/j-vishnu-prasad-518b69292/
